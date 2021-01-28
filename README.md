@@ -1,1 +1,3 @@
 # Red-Velvet-Cake
+
+Red velvet cake is a traditional American dessert, but it is increasingly popular. A red, red-brown, crimson or scarlet-colored chocolate sheet cake, layered with white icing, is usually a red velvet cake. Popular recipes, with the red colour added to semi, chloroform chocolate, do not use food colouring. Buttermilk, butter, chocolate, vinegar, and flour are typical ingredients. The acidic flavour of red velvet cake derives from the use of buttermilk and vinegar as well as cream cheese in the frosting. The flavour of the cake itself is balanced out by the acidity. For a moderate chocolate flavouring, it even has cocoa powder added to it.
